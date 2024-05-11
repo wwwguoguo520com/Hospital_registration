@@ -41,9 +41,10 @@
 ![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/375efa72-b4a3-4b62-9401-81745dcea86c)
 ![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/4d687a8b-9532-4953-9fb2-e0cc5abef69c)
 ![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/29ab9d6f-7519-4988-994f-bcb493a222ef)
-![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/b046ef83-98d0-4552-8577-febc3a7acc4c)
 ![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/a7294323-4a6e-4aeb-8de8-39574b27dfc3)
 ![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/f5a8c00a-d921-4802-ad64-46324a4a98f4)
 ![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/5d3858f5-d210-4e70-a238-fb188fca27b2)
-![Uploading image.png…]()
-![Uploading image.png…]()
+![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/54e42aed-6f86-4478-a0a9-839c2cb53dba)
+![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/d5a8adc5-6f12-42b6-9b3b-e1df04d896eb)
+![image](https://github.com/wwwguoguo520com/Hospital_registration/assets/26089473/c7647058-5770-443d-899d-050aec81f0a5)
+
